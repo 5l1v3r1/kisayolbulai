@@ -1,0 +1,1 @@
+Bu program Yunus AYDIN tarafından yapılmıştır.Instagramdan takip etmeyi unutmayın instagram.com/yapayzeka.turkiye
